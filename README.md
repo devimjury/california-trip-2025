@@ -15,3 +15,8 @@ San Francisco (/ˌsæn frənˈsɪskoʊ/ SAN frən‑SIS‑koh; Spanish for 'Sain
 - **Estimated Duration**: 4 hours 15 minutes
 
 *Route: US‑101 S → I‑580 E → CA‑120 E to Yosemite Valley Visitor Center.*
+
+## Daily Itinerary
+- **Day 1**: Arrival in San Francisco, explore Fisherman's Wharf, Golden Gate Bridge vista points.
+- **Day 2**: City tour (Alcatraz, Chinatown, cable cars) and lunch at Greens Restaurant.
+- **Day 3**: Drive to Yosemite, settle in, evening walk in Yosemite Valley.
